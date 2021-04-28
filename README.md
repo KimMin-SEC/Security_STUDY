@@ -1,3 +1,2 @@
 # Security_STUDY
-
-aaqqqqqqqq
+HAKMIN
